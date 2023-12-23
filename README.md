@@ -1,1 +1,0 @@
-# Gelisim-Asamas-da..
